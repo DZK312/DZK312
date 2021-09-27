@@ -1,0 +1,2 @@
+- 👋 Hi, I’m DZK312
+- 👀 I’m interested in Video Games
